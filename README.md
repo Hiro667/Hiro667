@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Hiro667
-- 👀 I’m interested in ur mom
+- 👀 I’m interested in brainrot
 - 🌱 I’m currently learning c++ 🥶
 - 💞️ I’m looking to collaborate on goofy ah y que fue
 - 📫 How to reach me Hiro667
