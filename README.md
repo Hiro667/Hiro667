@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Hiro667
 - 👀 I’m interested in ur mom
 - 🌱 I’m currently learning c++ 🥶
-- 💞️ I’m looking to collaborate on transexuelle developpement
+- 💞️ I’m looking to collaborate on goofy ah y que fue
 - 📫 How to reach me Hiro667
 
 <!---
